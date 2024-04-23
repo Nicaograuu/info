@@ -10,3 +10,4 @@
 ![image](https://github.com/Nicaograuu/info/assets/162647678/12862cbf-c3df-4936-ac27-419f92782275)
 [Funções.xlsx](https://github.com/Nicaograuu/info/files/15083925/Funcoes.xlsx)
 ![image](https://github.com/Nicaograuu/info/assets/162647678/d7de036a-26ff-453d-8bdd-9d35df7b8c69)
+![image](https://github.com/Nicaograuu/info/assets/162647678/173f050c-da5f-458b-8585-65b28e78c48a)
