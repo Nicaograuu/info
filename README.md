@@ -1,3 +1,8 @@
 # info
 
 ![image](https://github.com/Nicaograuu/info/assets/162647678/81601b8c-6d8e-4327-8056-bf131dcd570e)
+[Atividade Luan e Nicolas (2).xlsx](https://github.com/Nicaograuu/info/files/15083818/Atividade.Luan.e.Nicolas.2.xlsx)
+![image](https://github.com/Nicaograuu/info/assets/162647678/20ee56e8-0a95-49ed-87d3-0f4e42b43240)
+![image](https://github.com/Nicaograuu/info/assets/162647678/222dfd0b-6b73-4852-be41-d41179d06fdc)
+![image](https://github.com/Nicaograuu/info/assets/162647678/86f6144d-7bd1-4b8e-bec4-94a58ba59bc5)
+![image](https://github.com/Nicaograuu/info/assets/162647678/65c7a411-bee6-4c9c-baf7-85fd8281ad30)
