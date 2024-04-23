@@ -6,3 +6,7 @@
 ![image](https://github.com/Nicaograuu/info/assets/162647678/222dfd0b-6b73-4852-be41-d41179d06fdc)
 ![image](https://github.com/Nicaograuu/info/assets/162647678/86f6144d-7bd1-4b8e-bec4-94a58ba59bc5)
 ![image](https://github.com/Nicaograuu/info/assets/162647678/65c7a411-bee6-4c9c-baf7-85fd8281ad30)
+[HORARIO_dinamica.xlsx](https://github.com/Nicaograuu/info/files/15083920/HORARIO_dinamica.xlsx)
+![image](https://github.com/Nicaograuu/info/assets/162647678/12862cbf-c3df-4936-ac27-419f92782275)
+[Funções.xlsx](https://github.com/Nicaograuu/info/files/15083925/Funcoes.xlsx)
+![image](https://github.com/Nicaograuu/info/assets/162647678/d7de036a-26ff-453d-8bdd-9d35df7b8c69)
